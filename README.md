@@ -1,0 +1,6 @@
+- 👋 Hello, I’m @SpiwalObsessed
+- 👀 I’m interested in hypnosis especially spirals, my favorite programming language is Lua.
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 Reach me on Discord SpinnySpiwal#0001, Roblox SpiwalOfficial.
+- I am the developer&owner of Synapse SS. (Synapse Serverside)
